@@ -43,7 +43,7 @@ _ Ashrafi Isfahani University
 ### working Experience
 
 ---
-+ I am working in Caltural,Turism & Handicrafts Minister.
++ I dont have any experience.
 
 
 
